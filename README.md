@@ -1,1 +1,1 @@
-# jeongseok2.github.com
+안녕하세요 박정석님의 홈페이지입니다.
